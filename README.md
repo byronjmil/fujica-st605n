@@ -1,0 +1,1 @@
+# fujica-st605n
